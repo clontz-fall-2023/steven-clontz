@@ -2,7 +2,7 @@
 
 Because Dr. Clontz made me make this
 
-To write whatever you want! (-:
+To write whatever you want! :-)
 
 Make things **bold**.
 
